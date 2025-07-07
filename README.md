@@ -1,2 +1,2 @@
 # hacker-window
-You can feel yourself as a ''hacker"
+my bad, idk really, it's not something serious fr
