@@ -1,2 +1,2 @@
 # hacker-window
-my bad, idk really, it's not something serious fr
+bullshit honestly, tho good stuff to do when bored.
